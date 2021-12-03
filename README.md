@@ -1,2 +1,8 @@
 # adollhitler.github.io
-hitler cuh
+hetn
+
+gbg
+t
+gtrb
+dbth
+bv 
